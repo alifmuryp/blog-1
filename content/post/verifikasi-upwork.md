@@ -17,7 +17,7 @@ masih berjaya, namun belum pernah melakukan apa-apa.
     Nah kemarin dapat kebetulan job pertama bikin
     pop-up dengan vex untuk Hugo.
 
-...dan beberapa hari berikutnya dapat email dari Upwork yang mengatakan: akun saya sementara ditahan dan harus melalkukan verifikasi melalui video chat.
+...dan beberapa hari berikutnya dapat email dari Upwork yang mengatakan: [akun](muryp.my.id "Coba") saya sementara ditahan dan harus melalkukan verifikasi melalui video chat.
 
 Video chat!!
 
